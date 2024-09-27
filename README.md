@@ -4,7 +4,7 @@
 
 🎓 Lifelong Learner: Currently pursuing my Master's in Business Analytics.
 
-🎬 Project Spotlight: Stay tuned for my upcoming project exploring horror movie genres!
+🎬 Project Spotlight: Exploring Horror Movie sub-genres
 
 📫 Connect with me on LinkedIn: https://www.linkedin.com/in/emmaelizabethkent/
 
